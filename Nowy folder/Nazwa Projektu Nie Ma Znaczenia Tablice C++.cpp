@@ -1,0 +1,1 @@
+nie dam bo nie mam
